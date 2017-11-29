@@ -1,9 +1,17 @@
 # wiersz3
 
-Minęło już osiem lat
+Minęło już osiem lat,
 
-porąbał nas kat
+niwiele się zmieniło.
 
-Ukradł fajny kwiat
+Porąbał nas kat,
 
-I wyruszył w świat
+i niefajnie się zrobiło.
+
+Ukradł piękny kwiat,
+
+Cenny niczym diament.
+
+I wyruszył w świat,
+
+Bo miał nazwisko Filament.
